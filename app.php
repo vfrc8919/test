@@ -11,4 +11,17 @@
 
 ва
 ва
-ва
+ваfd
+df
+
+df
+df
+fde
+r
+t
+t
+r
+z
+xc
+
+cx
