@@ -22,6 +22,6 @@ t
 t
 r
 z
-xc
+xcw
 
 cx
